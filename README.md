@@ -1,6 +1,6 @@
 ## 🌚MonicaAlejandra
 
-I am interdisciplinarian professional exploring tools for the organizations and communities I am collaborating with. In my profile you will find replicates and ground-up projects of various topics.  Reach out if you have a interesting challenge in your hands :D
+I am interdisciplinarian professional exploring tools for collaborations In my profile you will find replicates and ground-up projects of various topics.  Reach out if you have a interesting challenge in your hands :D
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/monica-lozada/) 
